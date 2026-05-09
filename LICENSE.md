@@ -1,4 +1,4 @@
-
+Affinity Designer for macOS rare Template: export presets & custom brushes offers the most advanced Affinity Designer for macOS template, with export presets and custom brushes.
 
 
 
